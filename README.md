@@ -11,7 +11,7 @@
 <p><img src="https://64.media.tumblr.com/6a48c4137a851f6bd301e04100bed86f/ac94cd089bfb808d-05/s1280x1920/a24d29b0375d1aaa47e3247770eb34a8b261951f.gifv"><img src="https://adriansblinkiecollection.neocities.org/stamps/b49.jpg"><img src="https://adriansblinkiecollection.neocities.org/stamps/a77.png"><img src="https://64.media.tumblr.com/422bdef0f254732679d424ca79f95f24/a7cfafaca9b4a19d-35/s1280x1920/7087cf970cf32f8f957d761862ef495faa75ce12.gifv">
 
 <p>Hey! You can call me Amzi. I'm usually at around the docks because drama is entertaining! :P</p>
-<p><sub>Brutally honest and weird. Jokes around A LOT! I hate "👑" whispers and don't respond to them. I don't care if u get inspired by my skins. Will make fun of you if ur stupid. <img src="https://64.media.tumblr.com/6486cd9758cfc5d3307907df888db321/fecbcebcddfc530b-45/s75x75_c1/44bc15e85f37d7ea01d326cd32114fc72a22b6b0.gifv">
+<p><sub>Brutally honest and weird. Jokes around A LOT! I hate "👑" whispers and don't respond to them. I don't care if u get inspired by my skins. Will make fun of you if ur stupid. Mutes advertisers cuz they annoying as shit. <img src="https://64.media.tumblr.com/6486cd9758cfc5d3307907df888db321/fecbcebcddfc530b-45/s75x75_c1/44bc15e85f37d7ea01d326cd32114fc72a22b6b0.gifv">
 
 <p><img src="https://88by31.neocities.org/misc/alltits.png"><img src="https://64.media.tumblr.com/c4d8f7609ce07771d6b2d3cbf9dcb8ab/06f078481b23cb22-18/s100x200/bd139c628dfe053489282f4234aa5923777ca096.gifv"><img src="https://64.media.tumblr.com/ac4c297645bbaec3993986c4ab396e0c/3c8bb5eaf0700039-68/s100x200/c50a0c9e79d398dcd1316d7cb63b3c7f75a4dc3a.pnj">
 
