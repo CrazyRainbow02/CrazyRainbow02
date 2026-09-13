@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/akcLioW-JC2LjOAF/logo2.png">
+<img src="https://files.catbox.moe/jxp0q0.png">
 <img src="https://files.catbox.moe/gwfryy.png">
 
 ---
